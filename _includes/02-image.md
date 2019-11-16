@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+![Похожи](https://sun9-72.userapi.com/c855036/v855036853/1664fe/EqNYvv4vwLg.jpg)
