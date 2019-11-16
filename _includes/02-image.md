@@ -1,1 +1,1 @@
-![Похожи](https://sun9-72.userapi.com/c855036/v855036853/1664fe/EqNYvv4vwLg.jpg)
+![view from the 12th floor of dorm](https://sun9-52.userapi.com/c629205/v629205052/3f07a/loEBiQgE7XM.jpg)
